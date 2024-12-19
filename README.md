@@ -36,7 +36,7 @@
 [![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://api.whatsapp.com/send?phone=+94773883257&text=Hᴇʏ_𝐘ᴏᴠɪ_𝐇ᴇʟᴘ)
 
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://api.whatsapp.com/send?phone=+94769483739&text=Hᴇʏ_𝐊ᴇꜱʜɪ_𝐇ᴇʟᴘ)
+[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://api.whatsapp.com/send?phone=+94707865331&text=Hᴇʏ_𝐊ᴇꜱʜɪ_𝐇ᴇʟᴘ)
 <hr>
 </details>
 
