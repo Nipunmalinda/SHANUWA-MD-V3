@@ -1,6 +1,6 @@
 <div align="center">
      
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=SHANUWA+MD+V3+ＷＨＡＴＳＡＰＰ+ＢＯＴ+CREATE+BY+SHANUWA+ID)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=Nipun+MD+V3+ＷＨＡＴＳＡＰＰ+ＢＯＴ+CREATE+BY+SHANUWA+ID)](https://git.io/typing-svg)
 
 
 
